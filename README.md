@@ -1,1 +1,0 @@
-# Adoptme_script
